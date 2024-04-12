@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @tsor16, an expatriate.
-- 👀 I’m interested in food and other culture.
+- 👀 I’m interested in exploring more on decentralized web.
 - 🌱 I’m currently learning forex, crypto and nodes.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on brainstorming ideas and helping with research.
 - 📫 How to reach me ..
 https://twitter.com/PenalesTsor
 https://www.facebook.com/tsor.penales
