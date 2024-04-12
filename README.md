@@ -1,10 +1,10 @@
-- 👋 Hi, I’m @tsor16, an expatriate
+- 👋 Hi, I’m @tsor16, an expatriate.
 - 👀 I’m interested in food and other culture.
 - 🌱 I’m currently learning forex, crypto and nodes.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ..
-twitter https://twitter.com/PenalesTsor
-facebook https://www.facebook.com/tsor.penales
+https://twitter.com/PenalesTsor
+https://www.facebook.com/tsor.penales
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
