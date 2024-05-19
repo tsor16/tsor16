@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tsor16, an expatriate.
+- 👋 Hi, I’m @tsor16, Expatriate.
 - 👀 I’m interested in exploring more on decentralized web.
 - 🌱 I’m currently learning forex, crypto and nodes.
 - 💞️ I’m looking to collaborate on brainstorming ideas and helping with research.
